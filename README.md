@@ -31,10 +31,23 @@ negro.
 soy bastante aficionado también a "tocar un instrumento"
 -Hola
 
+
+
 Mis instrumentos favoritos son trombone , guitarra , trompeta.
+También soy amante de los **coches**
+(![coche](https://github.com/Alfonso112344/Curr-culum-Alfonso/assets/146205349/8d327683-13d5-46cc-abc8-1a9a9b6fa0a7)
+Ese es mi coche.
+
+
 Para tocar trombone tenemos que hacer los siguientes pasos.
+- Poner una posición correcta de la boca.
+- conocer las posiciones de la bara del trombone para sacar la escala musical.
 1. soplar de forma que parece que escupimos.
 2. aprender la escala
+
+![Rony](https://estaticos-cdn.sport.es/clip/ae1f1131-ae9d-490d-999b-1e702bf4c109_alta-libre-aspect-ratio_default_0.jpg)
+   
+   
 
 
 
