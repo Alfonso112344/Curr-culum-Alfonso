@@ -24,12 +24,13 @@ Pero todo puede resolverse con café.
 Es "realmente , realmente" bueno  aprender otros  idiomas.
 #### www.BBC.com/news
 le voy a enseñar [https://www.bizkaia.eus/es/web/bizkaiatech/-/el-renacer-del-descubrimiento-cient%C3%ADfico.-ia-y-computaci%C3%B3n-cu%C3%A1ntica-como-base-de-la-revoluci%C3%B3n-inform%C3%A1tica] [ https://www.sport.es/es/]
-![fútbol](https://es.uefa.com/uefachampionsleague/news/01e1-0e73ad276d87-443652e465c0-1000--el-trofeo-de-la-uefa-champions-league/)
+![fútbol](https://editorial.uefa.com/resources/0268-1219bc378015-9f968011d650-1000/fbl-eur-c1-draw.jpeg)
 (gato naranja)[naranja]
 (gato negro)
 negro.
 soy bastante aficionado también a "tocar un instrumento"
 -Hola
+
 Mis instrumentos favoritos son trombone , guitarra , trompeta.
 Para tocar trombone tenemos que hacer los siguientes pasos.
 1. soplar de forma que parece que escupimos.
